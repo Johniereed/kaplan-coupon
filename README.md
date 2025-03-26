@@ -173,26 +173,14 @@ Note: Don’t forget to apply those juicy Kaplan Promo codes to save up to 60% o
 ## Benefits You Get With Kaplan Coupon Code
 
 Kaplan provides you with several benefits to score higher in your exams it has almost 80 years of tutoring experience, with expert-led instructors and more such as:
-
 |Category|Benefits|
-| --- | --- |
-|Expert Instructors|✅ Taught by 99th-percentile experts
-
-✅ 1-on-1 tutoring options|
-|Comprehensive Study Materials|✅ Full-length practice tests
-
-✅ Thousands of practice questions
-
-✅ Adaptive learning technology|
-|Flexible Learning Options|✅ Live Online & On-Demand courses
-
-✅ Bootcamps & Private Tutoring
-
-✅ Unlimited Prep Plans|
-|High Success Rate|✅ Proven score improvements
-
-✅ Trusted by millions of students|
+|---|---|
+|Expert Instructors|✅ Taught by 99th-percentile experts <br> ✅ 1-on-1 tutoring options|
+|Comprehensive Study Materials|✅ Full-length practice tests <br> ✅ Thousands of practice questions <br> ✅ Adaptive learning technology|
+|Flexible Learning Options|✅ Live Online & On-Demand courses <br> ✅ Bootcamps & Private Tutoring <br> ✅ Unlimited Prep Plans|
+|High Success Rate|✅ Proven score improvements <br> ✅ Trusted by millions of students|
 |Discounts & Savings|✅ Save up to 60% with a Kaplan coupon 🔥|
+
 
 ## More Ways To Save On Kaplan
 
